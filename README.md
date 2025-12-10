@@ -10,4 +10,4 @@ ReformNZ will
 <br>
 
 Join us today! <br>
-[Our discord group](https://discord.gg/anfFWSA6JF)
+[Our discord group](https://discord.gg/mq9Qbtv6en)
