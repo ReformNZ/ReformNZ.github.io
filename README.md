@@ -1,5 +1,5 @@
 ### Fix Broken New Zealand
-RefomNZ is a unegistered political party of New Zealand <br> <br>
+RefomNZ is a unregistered political party of New Zealand <br> <br>
 
 **Our Priorities** <br>
 ReformNZ will deliver for all New Zealanders, we will: <br>
