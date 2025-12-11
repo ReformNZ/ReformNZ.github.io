@@ -11,7 +11,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 1. Repealing Part 9 of the Arms Amendment Regulations 2023
 2. Allocating $6 Billion dollars over 15 years to relace our two aging ANZAC class frigates with new Japanese Mogami-Class frigates
 3. Increasing GST on all confectionary from 15% to 20%
-4. Deporting all visa overstayers after a 28 appeal period
+4. Deporting all visa overstayers after a 28 day appeal period
 
 **Our Team** <br>
 ReformNZ is comprised of dedicated members that are determined to fix our country
