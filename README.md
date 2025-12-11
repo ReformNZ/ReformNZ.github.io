@@ -12,7 +12,8 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 2. Allocating $17 Billion dollars over 25 years to purchase three Japanese Modani-Class Frigates, 18 F-16 Fighter Jets and 2 OPVs 
 3. Increasing GST on all confectionary products from 15% to 20%
 4. Deporting all visa overstayers after a 28 day appeal period
-5. Scrapping all government funding for Maori and LBGTQ communities and organizations.
+5. Scrapping all government funding for Maori and LBGTQ communities and organizations
+6. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. 27% tax on local soft drinks and 50% on imported equivalents
 
 
 **Our Team** <br>
