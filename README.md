@@ -9,7 +9,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 
 **Our Policies** <br>
 1. Repealing Part 9 of the Arms Amendment Regulations 2023
-2. Allocating $17 Billion dollars over 25 years to purchase three Japanese Modani-Class Frigates, 18 F-16 Fighter Jets and 2 OPVs 
+2. Allocating $17 Billion dollars over 25 years to purchase three Japanese Modami-Class Frigates, 18 F-16 Fighter Jets and 2 OPVs 
 3. Increasing GST on all confectionary products from 15% to 20%
 4. Deporting all visa overstayers after a 28 day appeal period
 5. Scrapping all government funding for Maori and LBGTQ communities and organizations
