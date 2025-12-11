@@ -9,9 +9,11 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 
 **Our Policies** <br>
 1. Repealing Part 9 of the Arms Amendment Regulations 2023
-2. Allocating $6 Billion dollars over 15 years to relace our two aging ANZAC class frigates with new Japanese Mogami-Class frigates
+2. Allocating $16 Billion dollars over 18 years to purchase three Japaense Modani-Class Frigates, 18 F-16 Fighter Jets and 2 OPVs 
 3. Increasing GST on all confectionary products from 15% to 20%
 4. Deporting all visa overstayers after a 28 day appeal period
+5. Scrapping all government funding for Maori and LBGTQ communities and organizations.
+
 
 **Our Team** <br>
 ReformNZ is comprised of dedicated members that are determined to fix our country
