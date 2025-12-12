@@ -21,8 +21,9 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 **Our Team** <br>
 ReformNZ is comprised of dedicated members that are determined to fix our country.
 
-**Join us today!** <br>
-[*Our discord group*](https://discord.gg/mq9Qbtv6en)
+**Find out more!** <br>
+[*Our discord group*](https://discord.gg/mq9Qbtv6en) <br>
+[*Our facebook profile*](https://www.facebook.com/profile.php?id=61584596267296)
 
 **Contact Us** <br>
 Send us a message and we'll be in contact with you very shortly! <br>
