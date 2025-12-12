@@ -14,8 +14,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 3. Increasing GST on all confectionary products from 15% to 20%.
 4. Deporting all visa overstayers after a 28 day appeal period.
 5. Scrapping all government funding for Maori and LBGTQ communities and organizations.
-6. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported eq
-7. uivalents. 27% tax on local soft drinks and 50% on imported equivalents.
+6. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. 27% tax on local soft drinks and 50% on imported equivalents.
 8. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment and 3 years of community service. And 22 years for supply or manufacture.
 
 
