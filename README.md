@@ -1,6 +1,9 @@
 ### Fix Broken New Zealand
+**Your Country, Your Responsibility.
+Let's Restore New Zealand Together** <br> <br>
 *Disclaimer:* <br>
 *ReformNZ is an unregistered political group and is not an official political party registered with the New Zealand Electoral Commission.* <br> <br>
+
 
 **Our Priorities** <br>
 ReformNZ will deliver for all New Zealanders, we will: <br>
