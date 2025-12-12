@@ -16,7 +16,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 5. Scrapping all government funding for Maori and LBGTQ communities and organizations.
 6. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. 27% tax on local soft drinks and 50% on imported equivalents.
 7. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment and 3 years of community service. And 22 years for supply or manufacture.
-8. Deporting all visa overstayers by 2035 involving the police and defence forces aiming for 2000 deportations a year as part of "Operation Exodus".
+8. Deporting all visa overstayers by 2035 involving the police and defence forces aiming for 2000 deportations a year as part of "Operation Exodus". 🛫 🛫 
 
 
 **Our Team** <br>
