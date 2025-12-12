@@ -1,5 +1,6 @@
 ### Fix Broken New Zealand
-RefomNZ is a unregistered political party of New Zealand. <br> <br>
+*Disclaimer:* <br>
+*ReformNZ is an unregistered political group and is not an official political party registered with the New Zealand Electoral Commission.* <br> <br>
 
 **Our Priorities** <br>
 ReformNZ will deliver for all New Zealanders, we will: <br>
@@ -13,8 +14,9 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 3. Increasing GST on all confectionary products from 15% to 20%.
 4. Deporting all visa overstayers after a 28 day appeal period.
 5. Scrapping all government funding for Maori and LBGTQ communities and organizations.
-6. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. 27% tax on local soft drinks and 50% on imported equivalents.
-7. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment and 3 years of community service. And 22 years for supply or manufacture.
+6. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported eq
+7. uivalents. 27% tax on local soft drinks and 50% on imported equivalents.
+8. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment and 3 years of community service. And 22 years for supply or manufacture.
 
 
 **Our Team** <br>
@@ -22,3 +24,7 @@ ReformNZ is comprised of dedicated members that are determined to fix our countr
 
 **Join us today!** <br>
 [Our discord group](https://discord.gg/mq9Qbtv6en)
+
+**Contact Us** <br>
+Send us a message and we'll be in contact with you very shortly! <br>
+reformnz@hotmail.com
