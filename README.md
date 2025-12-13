@@ -11,7 +11,6 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 3. Ensure that New Zealand is a safe country for people to live in.
 
 ### Our Policies <br>
-
 #### Defence and foreign affairs <br>
 1. Allocating $17 Billion dollars over 25 years to purchase three Japanese Modami-Class Frigates, 18 F-16 Fighter Jets and 2 OPVs.
 
