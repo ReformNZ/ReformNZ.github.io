@@ -14,6 +14,9 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 #### Defence and foreign affairs <br>
 1. Allocating $17 Billion dollars over 25 years to purchase three Japanese Modami-Class Frigates, 18 F-16 Fighter Jets and 2 OPVs.
 
+#### Economy <br>
+1. Opposing any form of a universal basic income.
+
 #### Immigration <br> 
 1. Changing the appeal period for all visa overstayers from 42 days to a 28 day appeal period.
 2. Deporting all visa overstayers by 2035 as part of a coordinated effort involving the police, defence forces and INZ. Aiming for 2000 deportations a year as part of "Operation Exodus". 🛫 🛫
@@ -30,6 +33,8 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 #### Law and Justice <br>
 1. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment & 3 years of community service. And 22 years for supply or manufacture.
 2. Supporting the bill put forwards by NZFirst mandating organizations accept both physical and digital forms of ID whenever proof of age/identity is required.
+3. Banning the use of AI in any shape or form in the use of policy making in both central or local government.
+4. Requiring humans by law in the process of high risk institutions such as courts, health and law enforcement.
 
 
 ### Our Team <br>
