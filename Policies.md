@@ -19,7 +19,7 @@
 1. Abolishing the New Zealand firearm registry.
 
 #### Health <br>
-1. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. And a 27% tax on local soft drinks and 50% on imported equivalents.
+1. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. And a 27% tax on local soft drinks and 50% on imported equivalents. This is including GST.
 
 #### Te Ao Maori and Coummunity <br> 
 1. Scrapping all government funding for Maori and LBGTQ communities and organizations.
