@@ -7,7 +7,6 @@
 #### Education <br>
 1. Making history compuslory until year 10.
 
-
 #### Economy <br>
 1. Opposing any form of a universal basic income.
 
@@ -17,6 +16,7 @@
 
 #### Firearms <br> 
 1. Abolishing the New Zealand firearm registry.
+2. Recognising a legal right to hunt designated pests in New Zealand provided hunters own a valid firearm license, the appropriate hunting license only on public designated land and adhere to specific regulation.
 
 #### Health <br>
 1. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. And a 27% tax on local soft drinks and 50% on imported equivalents. This is including GST.
