@@ -14,6 +14,9 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 #### Defence and foreign affairs <br>
 1. Allocating $17 Billion dollars over 25 years to purchase three Japanese Modami-Class Frigates, 18 F-16 Fighter Jets and 2 OPVs.
 
+#### Education <br>
+1. Making history compuslory until year 10.
+
 #### Economy <br>
 1. Opposing any form of a universal basic income.
 
@@ -22,7 +25,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 2. Deporting all visa overstayers by 2035 as part of a coordinated effort involving the police, defence forces and INZ. Aiming for 2000 deportations a year as part of "Operation Exodus". 🛫 🛫
 
 #### Firearms <br> 
-1. Abolish the New Zealand firearm registry.
+1. Abolishing the New Zealand firearm registry.
 
 #### Health <br>
 1. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. And a 27% tax on local soft drinks and 50% on imported equivalents.
