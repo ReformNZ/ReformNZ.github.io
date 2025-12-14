@@ -19,7 +19,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 2. Deporting all visa overstayers by 2035 as part of a coordinated effort involving the police, defence forces and INZ. Aiming for 2000 deportations a year as part of "Operation Exodus". 🛫 🛫
 
 #### Firearms <br> 
-1. Abolish the firearm's registry
+1. Abolish the New Zealand firearm registry.
 
 #### Health <br>
 1. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. And a 27% tax on local soft drinks and 50% on imported equivalents.
