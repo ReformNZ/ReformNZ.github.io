@@ -4,16 +4,21 @@
 *ReformNZ is an unregistered political group and is not an official political party registered with the New Zealand Electoral Commission.* <br> <br>
 
 ### Our values <br>
-1. Recognise the Treaty of Waitangi as our founding document
-2. Honor the culture and tradition that we have built throughout our history
-3. Ensure that New Zealand remains a great country to live in 
+1. Recognise the Treaty of Waitangi as our founding document.
+2. Honor the culture and tradition that we have built throughout our history.
+3. Ensure that New Zealand remains a great country to live in.
+4. Protect our Nation's sovereignty.
 
 
 ### Our Priorities <br>
 ReformNZ will deliver for all New Zealanders, we will: <br>
 1. Cut the cost of living so kiwis can affordably live in our country.
-2. Strengthen our national sovereignty and tradition.
-3. Ensure that New Zealand is a safe country for people to live in. 
+2. Cut wasteful spending on woke ideology.
+3. Deport all illegal immigrants.
+4. Ensure our tradition remains for the future to come.
+5. Protect our economy and our people as we enter the age of AI.
+6. Enforce law and order so everyone can be safe.
+7. Relax unnessesary firearm regulations that hurt lawful owners.
 
 [Read the full page on our policies here](Policies.md)
 
