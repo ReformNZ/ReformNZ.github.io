@@ -19,7 +19,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 2. Deporting all visa overstayers by 2035 as part of a coordinated effort involving the police, defence forces and INZ. Aiming for 2000 deportations a year as part of "Operation Exodus". 🛫 🛫
 
 #### Firearms <br> 
-1. Repealing Part 9 of the Arms Amendment Regulations 2023.
+1. Abolish the firearm's registry
 
 #### Health <br>
 1. Implementing a confectionary tax of 17% on local chocolate and candy, 37% for imported equivalents. And a 27% tax on local soft drinks and 50% on imported equivalents.
@@ -29,7 +29,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 
 #### Law and Justice <br>
 1. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment & 3 years of community service. And 22 years for supply or manufacture.
-2. Suporting the Identification (Protection of Physical Identification Methods) Bill put forwards by New Zealand First.
+2. Suporting mandating businesses accept both physical and digital forms of ID proposed by NZFirst.
 
 
 ### Our Team <br>
