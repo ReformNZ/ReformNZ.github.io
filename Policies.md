@@ -27,5 +27,4 @@
 #### Law and Justice <br>
 1. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment & 3 years of community service. And 22 years for supply or manufacture.
 2. Supporting the bill put forwards by NZFirst mandating organizations accept both physical and digital forms of ID whenever proof of age/identity is required.
-3. Banning the use of AI in any shape or form in the use of policy making in both central or local government.
-4. Requiring humans by law in the process of high risk institutions such as courts, health and law enforcement.
+3. Requiring humans by law in the process of high risk institutions such as courts, health and law enforcement.
