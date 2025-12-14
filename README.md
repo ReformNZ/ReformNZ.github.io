@@ -29,7 +29,7 @@ ReformNZ will deliver for all New Zealanders, we will: <br>
 
 #### Law and Justice <br>
 1. Increasing maximum penalties for possesion of over 28g of cannabis to 6 years imprisonment & 3 years of community service. And 22 years for supply or manufacture.
-2. Suporting mandating businesses accept both physical and digital forms of ID proposed by NZFirst.
+2. Supporting the bill put forwards by NZFirst mandating businesses accept both physical and digital forms of ID or face fines.
 
 
 ### Our Team <br>
